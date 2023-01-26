@@ -1,2 +1,1 @@
-# CNY2023MarkSix
-Sure Win
+# Sure Win
